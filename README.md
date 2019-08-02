@@ -1,0 +1,2 @@
+# flashpoint
+Flashpoint Fire and Safety is your one-stop shop for your Fire and Safety compliance needs at the best prices! We service Toowoomba and surrounding areas, specialising in Training, Consultation, Servicing and Testing of Fire and Electrical Equipment as well as First Aid. With our licensed multi-skilled technicians we will save you time and money, being able to complete Fire Equipment Servicing, Electrical Test and Tag, together with First Aid kit restocking all in one visit.
